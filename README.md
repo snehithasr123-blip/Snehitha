@@ -20,4 +20,3 @@ Most of my work so far has been in healthcare claims and financial services, at 
 - [LinkedIn](https://linkedin.com/in/snehithasamala)
 - snehitha.sr123@gmail.com
 
-📍 Based in Texas, open to remote and relocation.
